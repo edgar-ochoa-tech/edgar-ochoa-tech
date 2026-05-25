@@ -24,7 +24,7 @@ My experience includes country leadership, enterprise sales, strategic account d
 - Built and scaled enterprise technology operations across Mexico and LATAM
 - Drove up to 30% regional sales growth
 - Expanded partner ecosystems by 15%
-- Captured 70% market share in a newly developed enterprise segment
+- Closed strategic technology agreements exceeding USD 50M across enterprise and infrastructure markets
 - Generated USD 15M in sales within two years
 - Closed strategic technology agreements exceeding USD 50M
 
